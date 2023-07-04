@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **prianshugraphics@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/prianshu/overlay/1635530184692/single-media-viewer?type=DOCUMENT&profileId=ACoAAD4DACoBFa1p1QheSFun7F_EBnVjR7r8aF4&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3Bpqy%2BgNoJSRmbKe0sa3wE%2Bg%3D%3D](https://www.linkedin.com/in/prianshu/overlay/1635530184692/single-media-viewer?type=DOCUMENT&profileId=ACoAAD4DACoBFa1p1QheSFun7F_EBnVjR7r8aF4&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3Bpqy%2BgNoJSRmbKe0sa3wE%2Bg%3D%3D)
+- 📄 Know about my experiences [https://shorturl.at/rszT1]
 
 - ⚡ Fun fact **I'm a patient of Wanderlust**
 
